@@ -58,4 +58,4 @@
 
 ⟡ Chance ˢʰᵃʳⁱⁿᵍ ʸᵘᵐᵉ | Forsaken
 
-⟡ Sebastian ᵐⁱʳʳᵒʳ ˢʰᵃʳⁱⁿᵍ ʸᵘᵐᵉ | Pressure
+⟡ Sebastian Solace ᵐⁱʳʳᵒʳ ˢʰᵃʳⁱⁿᵍ ʸᵘᵐᵉ | Pressure
