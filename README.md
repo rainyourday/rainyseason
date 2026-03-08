@@ -26,7 +26,7 @@
 
 ⟡ I don't really keep track on the fandom I'm in, but currently . .
 
-⟡ Bad Things / Any phycological horror games
+⟡ Bad Things / any  psychological horror games
 
 ⟡ Any Glitch production
 
