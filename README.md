@@ -48,6 +48,8 @@
 
 ⟡ Pressure ⁱᶠ ʸᵒᵘ ᵏⁿᵒʷ ᴱᵀᵀ ᵖˡˢ ⁱⁿᵗ ᵃⁿᵈ ᵇᵐᶠ ꜝꜝ
 
+⟡ Underworld Office / Charlie in Underworld
+
 ⟡ Animator vs Animation
 
 ⟡ Lego Monkie Kid
@@ -68,6 +70,8 @@
 
 ⟡ Andy ᶠⁱᶜᵗⁱᵒⁿᵏⁱⁿ | Duality
 
+⟡ Booker ᶠⁱᶜᵗⁱᵒⁿᵏⁱⁿ | Drawnout
+
 ⟡ Andrew ˢᵉˡᵉᶜᵗⁱᵛᵉ ˢʰᵃʳⁱⁿᵍ ʸᵘᵐᵉ | Bad Things
 
 ⟡ Serial Designation N ˢʰᵃʳⁱⁿᵍ ʸᵘᵐᵉ | Murder Drones
@@ -75,3 +79,11 @@
 ⟡ Chance ˢʰᵃʳⁱⁿᵍ ʸᵘᵐᵉ | Forsaken
 
 ⟡ Sebastian Solace ᵐⁱʳʳᵒʳ ˢʰᵃʳⁱⁿᵍ ʸᵘᵐᵉ | Pressure
+
+⟡ Malik ᶠᵃᵐⁱˡⁱᵃˡ ʸᵘᵐᵉ | Viva Fantasy
+
+⟡ Boss ᶠᵃᵐⁱˡⁱᵃˡ ʸᵘᵐᵉ | Underworld Office
+
+⟡ Aizawa Shouta ᶠᵃᵐⁱˡⁱᵃˡ ʸᵘᵐᵉ | My Hero Academia
+
+⟡ Cruel King ᶠᵃᵐⁱˡⁱᵃˡ ʸᵘᵐᵉ | Block Tales
