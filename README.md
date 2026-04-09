@@ -46,7 +46,7 @@
 
 ⟡ Any Glitch production
 
-⟡ Pressure ⁱᶠ ʸᵒᵘ ᵏⁿᵒʷ ᴱᵀᵀ ᵖˡˢ ⁱⁿᵗ ᵃⁿᵈ ᵇᵐᶠ ꜝꜝ
+⟡ Pressure (Fandom IWEC), Doors, Grace, and the likes of them ⁱᶠ ʸᵒᵘ ᵏⁿᵒʷ ᴱᵀᵀ ᵖˡˢ ⁱⁿᵗ ᵃⁿᵈ ᵇᵐᶠ ꜝꜝ
 
 ⟡ Underworld Office / Charlie in Underworld
 
@@ -73,6 +73,8 @@
 ⟡ Booker ᶠⁱᶜᵗⁱᵒⁿᵏⁱⁿ | Drawnout
 
 ⟡ Andrew ˢᵉˡᵉᶜᵗⁱᵛᵉ ˢʰᵃʳⁱⁿᵍ ʸᵘᵐᵉ | Bad Things
+
+⟡ Kinger ᶠᵃᵐⁱˡⁱᵃˡ ʸᵘᵐᵉ | The Amazing Digital Circus
 
 ⟡ Serial Designation N ˢʰᵃʳⁱⁿᵍ ʸᵘᵐᵉ | Murder Drones
 
