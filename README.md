@@ -2,25 +2,25 @@
 
 ㅤ ✦ 𝗡𝗔𝗠𝗘𝗦
 
-⟡ Rainy / Lycaelus / Any kins or nicknames
-
-⟡ I usually go by Rainy or Lycaelus, but anything else is fine. You can call me by my kins, too, it really gives me the comfort. Nicknames are very appreciated, go ahead and be creative !! Just be respectful okay ??
+⟡ I mainly go by Rainy or Lycaelus, but anything else is fine. You can call me by my kins too, it really gives me the comfort of being known. Nicknames are very appreciated, go ahead and be creative !! Just be respectful okay ??
 
 ㅤ ✦ 𝗣𝗥𝗢𝗡𝗢𝗨𝗡𝗦
 
 ⟡ Any / All <3
 
-⟡ I don't mind any pronouns as long as you accept me for who I come out to be, but if you really need to know, I often get referred as They/Them or He/Him.
+⟡ I don't mind any pronouns as long as you accept me for who I come out to be, but if you really need to know, I often get referred as They/Them or He/Him. Though I lean more towards feminine! I don't mind either way.
 
 ㅤ ✦ 𝗕𝗬𝗜
 
-⟡ Okay so, I'm pretty much an introvert and will get VERY awkward. I tend to not talk most of the time, but rest assured, if you do try to interact with me I will try to respond as best as I can!
+⟡ Okay so, I'm pretty much an introvert, will get VERY awkward and shy as hell It's no joke. I tend to not talk most of the time (I MEAN IT), but rest assured, if you do try to interact with me I will try to respond as best as I can!
 
-⟡ Below 15 years old IWEC ᵘⁿˡᵉˢˢ ᴵ ᵏⁿᵒʷ ʸᵒᵘ ᵃˡʳᵉᵃᵈʸ, alright? Don't get me involved into a drama, please.
+⟡ Below 15 years old IWEC ᵘⁿˡᵉˢˢ ᴵ ᵏⁿᵒʷ ʸᵒᵘ ᵃˡʳᵉᵃᵈʸ, alright? Don't get me involved into a drama, please. It's unnecessary and pointless.
 
-⟡ Don't demand nor expect too much from me as I might not meet up to your expectations.
+⟡ Don't demand nor expect too much from me as I might not meet up to your expectations. This is very important to note, because I still am a person and will likely make mistakes. However, if you try to communicate it with me instead of being vague, I'd appreciate it more! Just say so.
 
 ⟡ You can approach me even when I'm with friends, but be mindful of their pony's name ; if there's no C+H, I'd prefer you don't.
+
+⟡ My sleeping schedule is soooo questionable, so I will disconnect very often without a warning. Yes, that means I'm sleeping, so I'm sorry if I ever do that.
 
 ㅤ ✦ 𝗗𝗡𝗜𝗦
 
@@ -30,7 +30,7 @@
 
 ⟡ C+H IS HEAVILY ENCOURAGED EVEN IF NOT STATED ᵘⁿˡᵉˢˢ ᵃⁿʸ ᵗʸᵖᵉ ᵒᶠ ᴰᴺᴵˢ !! I love being cuddled and covered, it makes my day!
 
-⟡ I LOVEVE MATCHISNG PONIES PLEASE DONT BE AFRAID TO ASK HWMAHEJ
+⟡ I LOVEVE MATCHISNG PONIES PLEASE DONT BE AFRAID TO ASK HWMAHEJ. No, serious tho, please match with me!
 
 ⟡ 🟢 ; AVAILABLE.
 
@@ -53,6 +53,8 @@
 ⟡ Animator vs Animation
 
 ⟡ Lego Monkie Kid
+
+⟡ Block Tales
 
 ⟡ Ask me for a certain fandom !
 
